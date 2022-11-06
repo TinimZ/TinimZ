@@ -5,7 +5,7 @@
 - 📫 How to reach me ... Don't
 - 💬 **>Proverbs 10:27<**
 - 🌲 Wise mystical tree guides me throught life
-# Fix it later #
+# "Smoking weed, eating cheetos, and masturbating do not constitute plans in my book." **-Walter White** #
 <!---
 TinimZ/TinimZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
